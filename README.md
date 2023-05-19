@@ -1,5 +1,5 @@
 Victoria Lezama 
-Multimedia Art - UNA 
+Multimedia Art - Universidad Nacional de las Artes
 
 Buenos Aires, Argentina - 2023
 <!---
